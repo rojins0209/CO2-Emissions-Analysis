@@ -85,4 +85,4 @@ This project includes a one-year strategic plan to grow Brainalyst’s college p
 
 **Rojins S Martin**  
 3rd Year IT Engineering | Data | Design | Strategy  
-[LinkedIn](https://linkedin.com/) • [Portfolio](https://yourportfolio.com)
+[LinkedIn](www.linkedin.com/in/rojinssmartin) • [Portfolio](https://yourportfolio.com)
